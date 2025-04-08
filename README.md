@@ -1,5 +1,3 @@
 # fork2.0-khushali
-how are u kogo. kive ee.👉👈!
-hi .mahan kirti.
-aumeed haia aap shkhuashal hogi.
-pranam.
+how are u guys?
+what about project?
